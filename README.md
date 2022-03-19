@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @A Sauce.
 - 👀 I’m interested in among us, minecraft, plants vs zombies and ultramans.
 - 🌱 I’m currently learning chinese, math, english and more subjects.
-- 💞️ I’m looking to collaborate on a among us mod names LasMongjas.
+- 💞️ I’m looking to collaborate on a among us mod names SaSt.
 - 📫 How to reach me 3411465730@qq.com
 
 <!---
